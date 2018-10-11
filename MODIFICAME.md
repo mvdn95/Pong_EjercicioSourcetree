@@ -1,1 +1,1 @@
-Has sido borrado
+Ahora ya arreglado
